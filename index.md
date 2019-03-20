@@ -1,5 +1,3 @@
-# Nikhit Adusumilli
-
 +1 (402)-999-1276 <br/>
 nikhitadusumilli@gmail.com <br/>
 [github](https://github.com/nadusumilli) <br/>
